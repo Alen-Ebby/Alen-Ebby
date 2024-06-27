@@ -36,6 +36,7 @@ Planning to conquer the vast landscape of college courses, but the heart is set 
 
 - Instagram: [@A_l_e_n_750](https://www.instagram.com/A_l_e_n_750)
 ---
+Slide into my DMs like a penguin on ice--smooth and ready for a chat anytime.
 
 ## Fun Fact
 
